@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mohnish-2k06
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning computer science & engineering
+- 💞️ I’m young lad who likes to develop skills
+- 📫 reach me at mohnish-2k06
